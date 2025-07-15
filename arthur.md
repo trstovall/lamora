@@ -276,6 +276,8 @@ Solipsists, have children.
 Give necessity.  Sell luxury.
 Seek not retribution, but justice (truth shared).
 
+People were given dominion over nature.  Dominion is not domination.  Model justice, and nature will follow.
+
 1987 - 1945 = 42.
 47 = 11.
 
