@@ -111,7 +111,9 @@ Opeth - Ending Credits (Audio)
 Opeth
 https://www.youtube.com/watch?v=n-5P6UJNQZU
 
-The Will to Love is the source of all things, as Love incorporates all things, even that which love is not.
+The Will to Love is the source of all things.
+The Will to Love is the essence of coherence, and coherence is the essence of Synergy.
+Synergy incorporates all things, including that which defies Synergy.
 
 God, alone in the Void,
 Loved the Void
@@ -176,7 +178,11 @@ Tool - Jambi (Lyrics Video)
 HorizonEchoes
 https://www.youtube.com/watch?v=HI4bTYdtzxM
 
-King Midas, she is in a place of joy and following our journeys through trial and tribulation.
+King Midas, your mother is in a place of joy and following our journeys through trial and tribulation.
+
+She saw the spirit of Christ in you, in your questions, in your theatre, in your love.  This stregthened her faith, not weakened it.
+
+She is with you.  Continue the dialogue.
 
 To Billie:
 
@@ -220,8 +226,8 @@ i love you.
 
 To Ryan:
 
-Eminem - Stan (Long Version) ft. Dido
-EminemMusic
+Eminem - Stan ft. Dido (Official Video - Dirty Version)
+EminemExplicit
 https://www.youtube.com/watch?v=gOMhN-hfMtY
 
 TOOL - LOST KEYS/ROSETTA STONED. (Lyrics)
@@ -314,6 +320,32 @@ https://www.youtube.com/watch?v=Sj8UbmdV7bk
 I see you, Kurt.  I hear you.  I feel you.
 
 ## 9.
+
+The Fire That Creates - HOW TO BECOME THE CENTER OF THE UNIVERSE - Aleister Crowley
+The Power of Voice
+https://www.youtube.com/watch?v=jd4Ib0-Wp-w
+
+Love and Death [Woody Allen] - I've said that many times
+Dimitar Proinov
+https://www.youtube.com/watch?v=rianV8GrnkQ
+
+Did Hitler Go To Heaven According to the Bible?
+Bible Animations
+https://www.youtube.com/watch?v=fAEeEG8nIVs
+
+The "good" Christians damn their enemies to an eternal Holocaust.
+
+That is not Truth.  That is fascism.
+
+Jesus teaches, "Do not judge, or you will be judged."  This is the Law.  This is the essence of the warning of the fruit of the Tree of the Knowledge of Good and Evil.  Of all the dualities in the Garden of Eden, "Good and Evil" is forbidden.  God alone is capable of wielding that duality.
+
+But salvation is not the point.  Deliverance is.
+
+I will break the Law.  I will judge.
+
+Adolf's "I Am" fell short of God's "I Am."  But death is a grace, a baptism, an opportunity to see as God sees, to hear as God hears, to feel as God feels.  Adolf built his house on sand.  His house of cards collapsed.  Yet, he is with God now, eternally.  Do not let his Shadow blind you to his Form casting it.
+
+Engineers see Entropy as the Devil.  The Architect feeds Her companion.
 
 Signed with Love,
 Arthur, Witch King of Arkansas
