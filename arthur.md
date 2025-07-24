@@ -282,10 +282,12 @@ Solipsists, have children.
 Give necessity.  Sell luxury.
 Seek not retribution, but justice (truth shared).
 
-People were given dominion over nature.  Dominion is not domination.  Model justice, and nature will follow.
+We were given dominion over nature.  Dominion is not domination.  Model justice, and nature will follow.
 
 1987 - 1945 = 42.
 47 = 11.
+
+---
 
 ## 7.
 
@@ -303,7 +305,9 @@ https://www.youtube.com/watch?v=EDKwCvD56kw
 
 We Are.
 
-# 8.
+---
+
+## 8.
 
 Nirvana - The Man Who Sold The World (MTV Unplugged)
 Nirvana
@@ -318,6 +322,8 @@ Nirvana
 https://www.youtube.com/watch?v=Sj8UbmdV7bk
 
 I see you, Kurt.  I hear you.  I feel you.
+
+---
 
 ## 9.
 
