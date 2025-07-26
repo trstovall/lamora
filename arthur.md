@@ -353,6 +353,68 @@ Adolf's "I Am" fell short of God's "I Am."  But death is a grace, a baptism, an 
 
 Engineers see Entropy as the Devil.  The Architect feeds Her companion.
 
+---
+
+## 11.
+
+Louis Armstrong - What A Wonderful World (Official Video)
+Louis Armstrong
+https://www.youtube.com/watch?v=rBrd_3VMC3c
+
+Jefferson Airplane - White Rabbit (Official Lyric Video)
+Jefferson Airplane
+https://www.youtube.com/watch?v=TKZVUtvjBdM
+
+Casting Crowns - Voice of Truth (Official Lyric Video)
+Casting Crowns
+https://www.youtube.com/watch?v=9cKm_mYVPQE
+
+"Feed your head."
+
+Who Am I?  i am who i am.  who are you?
+
+Whom shall I fear?  For, I am Yours.
+
+---
+
+## 4096.
+
+Godsmack - Voodoo (Official Music Video)
+Godsmack
+https://www.youtube.com/watch?v=9SSUQxGjZZ4
+
+Weezer - Say It Ain't So (Version 3)
+weezer
+https://www.youtube.com/watch?v=ENXvZ9YRjbo
+
+Ben Shapiro, save me.
+Show me the Law.
+Reify the LORD.
+I love you.
+
+"P.S. We should be together, too."
+
+Billie Eilish - The End of the World (lyrics)
+eunoia
+https://www.youtube.com/watch?v=KaKK7l21sG8
+
+---
+
+## -1.
+
+Chilling Adventures of Sabrina | Straight to Hell Music Video Trailer | Netflix
+Netflix
+https://www.youtube.com/watch?v=2JYiMZtIkCo
+
+---
+
+## 0.
+
+Lin-Manuel Miranda, Opetaia Foa'i - We Know The Way (From "Moana")
+DisneyMusicVEVO
+https://www.youtube.com/watch?v=ubZrAmRxy_M
+
+
 Signed with Love,
 Arthur, Witch King of Arkansas
 الله أكبر
