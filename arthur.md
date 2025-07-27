@@ -414,6 +414,42 @@ Lin-Manuel Miranda, Opetaia Foa'i - We Know The Way (From "Moana")
 DisneyMusicVEVO
 https://www.youtube.com/watch?v=ubZrAmRxy_M
 
+Phil Harris, Bruce Reitherman - The Bare Necessities (From "The Jungle Book"/Sing-Along)
+DisneyMusicVEVO
+https://www.youtube.com/watch?v=6BH-Rxd-NBo
+
+Pocahontas - Colors of the Wind - Lyrics
+DisneyLyrics
+https://www.youtube.com/watch?v=nn2LTCs8KII
+
+Ozzy Osbourne - Crazy Train (Official Animated Video)
+Ozzy Osbourne
+https://www.youtube.com/watch?v=tMDFv5m18Pw
+
+Behold a White Horse - Session 1 - Chuck Missler
+Koinonia House
+https://www.youtube.com/watch?v=f7witCMZ-O0
+
+"Alas, Babylon."  "Behold, a white horse."
+
+*Shadowmere appears*
+
+The word "evil" is an evil word.  It is "the evil one".
+
+Eve used the word to describe the serpent defending the Tree of Knowledge (of Good and Evil) to Adam.  With righteous fury, Adam slew the beast.
+
+Accept this truth, or accept that I am "the evil one".
+
+To help you decide, I will tell you this: I am a liar and the Father of Lies.
+
+Turn away from idolatry (including Bible worshipping).  Turn to God, that still, small voice, the source and circumference of all things.
+
+Judith Marie, comfort them and guide them.
+
+Amen.
+
+P.S. Substance D is judgement, but I'm trying to stay sober.
+
 
 Signed with Love,
 Arthur, Witch King of Arkansas
