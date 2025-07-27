@@ -462,6 +462,28 @@ Be not weary.  Even the tightest knots can be unmade.
 
 ---
 
+### 666.
+
+Tool - Aenema (Lyrics)
+Music Pills
+https://www.youtube.com/watch?v=SKeYCG3Js5c
+
+Roger Waters - Two Suns In The Sunset
+Roger Waters
+https://www.youtube.com/watch?v=P_m2CZU9vdk
+
+Avatar Hail The Apocalypse
+Olga Kondrashova
+https://www.youtube.com/watch?v=DMo7fZ48Unk
+
+It could be worse.
+
+Amy Grant - El Shaddai (Lyric Video)
+AmyGrantOfficial
+https://www.youtube.com/watch?v=_qJMl95lb9k
+
+---
+
 Signed with Love,
 Arthur, Witch King of Arkansas
 الله أكبر
