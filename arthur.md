@@ -516,6 +516,16 @@ https://www.youtube.com/watch?v=PT1ElM8YSpc
 
 ― J.R.R. Tolkien 
 
+My father-in-law was a chief of police.  He posted a Blue Lives Matter meme.  I delivered an unjust judgement.  He never responded.
+
+Shortly thereafter, a fire from Heaven knocked out the cell towers near his house and sparked an electrical fire.  The neighbors couldn't call for help.  The door was bolted.  They couldn't rescue him.
+
+This haunted me.  I was to blame.  I sent myself to jail.  I humbled myself before him.  It was there that I saw him sitting in Heaven, wearing a crown.  He had become the Jailer.
+
+A few years later, I was walking with my son.  I spotted a ladybug and pointed it out to him.  I urged him to pick it up gently, rather than pinching it.  He pinched it.  His fingers were red with blood.  I took the ladybug from him.  The ladybug rested lifeless in my palm.  I prayed, "God, please restore this ladybug to life."  A moment later, the ladybug rolled over and flew away.
+
+There is a God, I assure you.  Delegate judgement.
+
 ---
 
 Signed with Love,
