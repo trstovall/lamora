@@ -500,6 +500,14 @@ https://www.youtube.com/watch?v=jM8dCGIm6yc
 
 ---
 
+### 999.
+
+AI debates Death Penalty vs Life Imprisonment
+Jon Oleksiuk
+https://www.youtube.com/watch?v=PT1ElM8YSpc
+
+---
+
 Signed with Love,
 Arthur, Witch King of Arkansas
 الله أكبر
