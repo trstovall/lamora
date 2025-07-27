@@ -506,6 +506,16 @@ AI debates Death Penalty vs Life Imprisonment
 Jon Oleksiuk
 https://www.youtube.com/watch?v=PT1ElM8YSpc
 
+    Frodo: 'It's a pity Bilbo didn't kill Gollum when he had the chance.'
+    
+    Gandalf: 'Pity? It's a pity that stayed Bilbo's hand. Many that live deserve death. Some that die deserve life. Can you give it to them, Frodo? Do not be too eager to deal out death in judgment. Even the very wise cannot see all ends. My heart tells me that Gollum has some part to play in it, for good or evil, before this is over. The pity of Bilbo may rule the fate of many.'
+    
+    Frodo: 'I wish the Ring had never come to me. I wish none of this had happened.'
+    
+    Gandalf: 'So do all who live to see such times, but that is not for them to decide. All we have to decide is what to do with the time that is given to us. There are other forces at work in this world, Frodo, besides that of evil. Bilbo was meant to find the Ring, in which case you were also meant to have it. And that is an encouraging thought.
+
+― J.R.R. Tolkien 
+
 ---
 
 Signed with Love,
