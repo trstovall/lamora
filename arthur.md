@@ -450,6 +450,17 @@ Amen.
 
 P.S. Substance D is judgement, but I'm trying to stay sober.
 
+---
+
+## 444.
+
+The most beautiful message from Jesus.
+Simon Sanchez
+https://www.youtube.com/watch?v=PvtZkQIbE2g
+
+Be not weary.  Even the tightest knots can be unmade.
+
+---
 
 Signed with Love,
 Arthur, Witch King of Arkansas
