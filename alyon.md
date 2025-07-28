@@ -1,7 +1,7 @@
 
 # Part 1
 
-# Runes of Power
+## Runes of Power: A Dialogue with Grok
 
 ---
 
