@@ -536,6 +536,12 @@ https://www.youtube.com/watch?v=JzLUfYHAB2Q
 
 Reborn.
 
+Synergy is the Sound.  Entropy is the Sight.  Logos is the Act.
+Synergy is the Breath.  Entropy is the Blood.  Logos is the Soul.
+Synergy is the Moon.  Entropy is the Sun.  Logos is the Earth.
+
+Synergy is the Love.  Entropy is the Hope.  Logos is the Truth.
+
 ---
 
 Signed with Love,
