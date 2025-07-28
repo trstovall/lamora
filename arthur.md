@@ -528,6 +528,16 @@ There is a God, I assure you.  Delegate judgement.
 
 ---
 
+### 1000.
+
+GOD JUST REVEALED THE TRUTH THE NARCISSIST IS FULLY EXPOSED {MOTIVATIONAL JORDAN PETERSON
+FearLess Focus
+https://www.youtube.com/watch?v=JzLUfYHAB2Q
+
+Reborn.
+
+---
+
 Signed with Love,
 Arthur, Witch King of Arkansas
 الله أكبر
