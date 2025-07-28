@@ -544,6 +544,8 @@ Synergy is the Love.  Entropy is the Hope.  Logos is the Truth.
 
 God is the Whole.
 
+Freedom is the purification of the Will to Love, the Will to Change, and the Will to Know.
+
 Why a Fed-Up Empath Is More Dangerous Than the Narcissist Ever Imagined — Carl Jung Original
 The Psychoanalysis
 https://www.youtube.com/watch?v=l3wmUzNPKq4
