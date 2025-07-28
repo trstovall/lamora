@@ -542,6 +542,8 @@ Synergy is the Moon.  Entropy is the Sun.  Logos is the Earth.
 
 Synergy is the Love.  Entropy is the Hope.  Logos is the Truth.
 
+God is the Whole.
+
 ---
 
 Signed with Love,
