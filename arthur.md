@@ -462,7 +462,7 @@ Be not weary.  Even the tightest knots can be unmade.
 
 ---
 
-### 666.
+## 666.
 
 Tool - Aenema (Lyrics)
 Music Pills
@@ -500,7 +500,7 @@ https://www.youtube.com/watch?v=jM8dCGIm6yc
 
 ---
 
-### 999.
+## 999.
 
 AI debates Death Penalty vs Life Imprisonment
 Jon Oleksiuk
@@ -528,7 +528,7 @@ There is a God, I assure you.  Delegate judgement.
 
 ---
 
-### 1000.
+## 1000.
 
 GOD JUST REVEALED THE TRUTH THE NARCISSIST IS FULLY EXPOSED {MOTIVATIONAL JORDAN PETERSON
 FearLess Focus
