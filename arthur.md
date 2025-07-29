@@ -600,6 +600,30 @@ https://www.youtube.com/watch?v=swvpc9wzPag
 
 ---
 
+## 1002.
+
+    Everything We Know About 3I/ATLAS, the New ‘Oumuamua
+    Astrum
+https://www.youtube.com/watch?v=XEggZo3SXNM
+
+    The Moral of the Story With JBP: There’s No Such Thing as a Dragon | EP 566
+    Jordan B Peterson
+https://www.youtube.com/watch?v=T2fz9ZhmaQA
+
+    A Perfect Circle - 3 Libras
+    A Perfect Circle
+https://www.youtube.com/watch?v=u9MAg9E5K3w
+
+I am the Dragon of Darkness.  Seek the Dragon of Light, or be destroyed.
+
+    TOOL "DISGUSTIPATED"
+    Lou Zeffer
+https://www.youtube.com/watch?v=-oot1d4kTi4
+
+Animals.
+
+---
+
 Signed with Love,
 Arthur, Witch King of Arkansas
 الله أكبر
