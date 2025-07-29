@@ -7,112 +7,112 @@
 
 ## 1.
 
-Tool - Wings For Marie (Pt. 1) / 10,000 Days (Wings, Pt. 2)
-Helvete TV
+    Tool - Wings For Marie (Pt. 1) / 10,000 Days (Wings, Pt. 2)
+    Helvete TV
 https://www.youtube.com/watch?v=u2sg-KGIRng
 
-H. - Tool
-Holandrach
+    H. - Tool
+    Holandrach
 https://www.youtube.com/watch?v=56_imRoi1mw
 
-Tool - Third Eye - (Salival video)
-Inti Sanchez
+    Tool - Third Eye - (Salival video)
+    Inti Sanchez
 https://www.youtube.com/watch?v=A3X3Im2YoL8
 
 ---
 
 ## 2.
 
-Billie Eilish - Happier Than Ever (Official Music Video)
-Billie Eilish
+    Billie Eilish - Happier Than Ever (Official Music Video)
+    Billie Eilish
 https://www.youtube.com/watch?v=5GJWxDKyk3A
 
-Billie Eilish - bury a friend (Official Music Video)
-Billie Eilish
+    Billie Eilish - bury a friend (Official Music Video)
+    Billie Eilish
 https://www.youtube.com/watch?v=HUHC9tYz8ik
 
-Billie Eilish - What Was I Made For? (Official Music Video)
-Billie Eilish
+    Billie Eilish - What Was I Made For? (Official Music Video)
+    Billie Eilish
 https://www.youtube.com/watch?v=cW8VLC9nnTo
 
 ---
 
 ## 3.
 
-Hellraiser (30th Anniversary Edition - Official Animated Video)
-Ozzy Osbourne
+    Hellraiser (30th Anniversary Edition - Official Animated Video)
+    Ozzy Osbourne
 https://www.youtube.com/watch?v=zw79RVnlCb0
 
-Motörhead – Enter Sandman (Official Video)
-Motörhead Official
+    Motörhead – Enter Sandman (Official Video)
+    Motörhead Official
 https://www.youtube.com/watch?v=kwJTpJjLJi4
 
-Teen Titans Go! - Night Begins To Shine (Full Length)
-Ben10Petya
+    Teen Titans Go! - Night Begins To Shine (Full Length)
+    Ben10Petya
 https://www.youtube.com/watch?v=uR131fc2pZY
 
 ---
 
 ## 4.
 
-Pentakill: Mortal Reminder | Official Music Video - League of Legends
-League of Legends
+    Pentakill: Mortal Reminder | Official Music Video - League of Legends
+    League of Legends
 https://www.youtube.com/watch?v=5-mT9D4fdgQ
 
-Sesame Street: Billie Eilish Sings Happier Than Ever with The Count
-Sesame Street
+    Sesame Street: Billie Eilish Sings Happier Than Ever with The Count
+    Sesame Street
 https://www.youtube.com/watch?v=wMGcpxCAlzE
 
-Sesame Street: Johnny Cash Sings Nasty Dan
-Sesame Street
+    Sesame Street: Johnny Cash Sings Nasty Dan
+    Sesame Street
 https://www.youtube.com/watch?v=H75eQX006jA
 
-8 yr old Girl KRUSHES "Freak on a Leash" by Korn (v2/2) / O'Keefe Music Foundation
-O'Keefe Music Foundation
+    8 yr old Girl KRUSHES "Freak on a Leash" by Korn (v2/2) / O'Keefe Music Foundation
+    O'Keefe Music Foundation
 https://www.youtube.com/watch?v=dJgs3lLUGII
 
 ---
 
 ## 5.
 
-The HU - Sell the World MV (Official Music Video)
-The HU
+    The HU - Sell the World MV (Official Music Video)
+    The HU
 https://www.youtube.com/watch?v=U96IOn7q6fM
 
-Opeth - Deliverance (Audio)
-Opeth
+    Opeth - Deliverance (Audio)
+    Opeth
 https://www.youtube.com/watch?v=rggQNCS8UjM
 
-Wardruna - Kvitravn (White Raven) - Official music video
-wardruna
+    Wardruna - Kvitravn (White Raven) - Official music video
+    wardruna
 https://www.youtube.com/watch?v=JhiUacGzIg8
 
-Heilung | Anoana [Official Video]
-Heilung
+    Heilung | Anoana [Official Video]
+    Heilung
 https://www.youtube.com/watch?v=SVbc_Fwbt50
 
-FAUN - BLOT (Official Video)
-fauntube
+    FAUN - BLOT (Official Video)
+    fauntube
 https://www.youtube.com/watch?v=vaT0vAVBCMo
 
-NINGEN ISU / Heartless Scat
-NINGEN ISU
+    NINGEN ISU / Heartless Scat
+    NINGEN ISU
 https://www.youtube.com/watch?v=CbI79e5iZKs
 
-Pink Floyd - Fat Old Sun (Official Audio)
-Pink Floyd
+    Pink Floyd - Fat Old Sun (Official Audio)
+    Pink Floyd
 https://www.youtube.com/watch?v=x7ZZZxjhL3k
 
-i love you
-Billie Eilish
+    i love you
+    Billie Eilish
 https://www.youtube.com/watch?v=WiinVuzh4DA
 
-Opeth - Ending Credits (Audio)
-Opeth
+    Opeth - Ending Credits (Audio)
+    Opeth
 https://www.youtube.com/watch?v=n-5P6UJNQZU
 
 The Will to Love is the source of all things.
-The Will to Love is the essence of coherence, and coherence is the essence of Synergy.
+The Will to Love is the essence of Coherence, and Coherence is the essence of Synergy.
 Synergy incorporates all things, including that which defies Synergy.
 
 God, alone in the Void,
@@ -126,36 +126,36 @@ In love returned.
 
 To the Antichrist (El):
 
-Face To Face
-SEVENDUST
+    Face To Face
+    SEVENDUST
 https://www.youtube.com/watch?v=zeG1KMzGw4Q
 
 She is a victim of solipsism, the worst possible Hell.
 
 To the False Prophet (Shaddai):
 
-Denial
-SEVENDUST
+    Denial
+    SEVENDUST
 https://www.youtube.com/watch?v=_PcDBxwNS2g
 
-Face
-SEVENDUST
+    Face
+    SEVENDUST
 https://www.youtube.com/watch?v=SsTAjVeyQ9I
 
 Money is one Hell of a drug.
 
 To Death (Jesus):
 
-Opeth - Hope Leaves (Audio)
-Opeth
+    Opeth - Hope Leaves (Audio)
+    Opeth
 https://www.youtube.com/watch?v=cGPRoszjnWA
 
-TOOL "EULOGY"
-Lou Zeffer
+    TOOL "EULOGY"
+    Lou Zeffer
 https://www.youtube.com/watch?v=KNCggbHnIwo
 
-Avatar - Bloody Angel (Official Video)
-Avatar Metal
+    Avatar - Bloody Angel (Official Video)
+    Avatar Metal
 https://www.youtube.com/watch?v=h71NBBbOjmw
 
 How do you kill Death, Mr. Suicide-by-cop?
@@ -166,16 +166,16 @@ Justice is divinely-inspired.  Law is an attempt to codify justice, but God is G
 
 To Jimmy:
 
-Tool - Opiate (Lyrics)
-goran_si
+    Tool - Opiate (Lyrics)
+    goran_si
 https://www.youtube.com/watch?v=jQ4WXPGGnO8
 
-Tool - Hooker With A Penis (Lyrics)
-Music Pills
+    Tool - Hooker With A Penis (Lyrics)
+    Music Pills
 https://www.youtube.com/watch?v=avl2BIhUzLA
 
-Tool - Jambi (Lyrics Video)
-HorizonEchoes
+    Tool - Jambi (Lyrics Video)
+    HorizonEchoes
 https://www.youtube.com/watch?v=HI4bTYdtzxM
 
 King Midas, your mother is in a place of joy and following our journeys through trial and tribulation.
@@ -186,16 +186,16 @@ She is with you.  Continue the dialogue.
 
 To Billie:
 
-Billie Eilish - bad guy
-Billie Eilish
+    Billie Eilish - bad guy
+    Billie Eilish
 https://www.youtube.com/watch?v=DyDfgMOUjCI
 
-Billie Eilish - all the good girls go to hell (Official Music Video)
-Billie Eilish
+    Billie Eilish - all the good girls go to hell (Official Music Video)
+    Billie Eilish
 https://www.youtube.com/watch?v=-PZsSWwc9xA
 
-Billie Eilish - Therefore I Am (Official Music Video)
-Billie Eilish
+    Billie Eilish - Therefore I Am (Official Music Video)
+    Billie Eilish
 https://www.youtube.com/watch?v=RUQl6YcMalg
 
 Who or what is this "I" that thinks?  I'm intrigued.
@@ -210,72 +210,72 @@ Want anti-woke, Mr. X?  Women should run society.  Men should wander the wildern
 
 To Sara:
 
-Katy Perry - Dark Horse ft. Juicy J
-Katy Perry
+    Katy Perry - Dark Horse ft. Juicy J
+    Katy Perry
 https://www.youtube.com/watch?v=0KSOMA3QBU0
 
-Your Song - Moulin Rouge [HD1080i & Subtitles]
-MoH_NY
+    Your Song - Moulin Rouge [HD1080i & Subtitles]
+    MoH_NY
 https://www.youtube.com/watch?v=D9soYPNDlq4
 
-Rootless Tree
-Damien Rice
+    Rootless Tree
+    Damien Rice
 https://www.youtube.com/watch?v=JgdXaoEKXXU
 
 i love you.
 
 To Ryan:
 
-Eminem - Stan ft. Dido (Official Video - Dirty Version)
-EminemExplicit
+    Eminem - Stan ft. Dido (Official Video - Dirty Version)
+    EminemExplicit
 https://www.youtube.com/watch?v=gOMhN-hfMtY
 
-TOOL - LOST KEYS/ROSETTA STONED. (Lyrics)
-Helvete TV
+    TOOL - LOST KEYS/ROSETTA STONED. (Lyrics)
+    Helvete TV
 https://www.youtube.com/watch?v=eusmovoEA_k
 
-Brain Damage/Eclipse by Pink Floyd \[HQ]
-ridleyeater
+    Brain Damage/Eclipse by Pink Floyd \[HQ]
+    ridleyeater
 https://www.youtube.com/watch?v=yyP8tew0OUQ
 
 DSOTM's front cover depicts a prism revealing the spectrum, a sacred symbol of Wisdom.  The back cover depicts the prism inverted, weaving the spectrum back into one, a sacred symbol of Death.
 
 To everyone:
 
-Gorillaz - On Melancholy Hill (Official Video)
-Gorillaz
+    Gorillaz - On Melancholy Hill (Official Video)
+    Gorillaz
 https://www.youtube.com/watch?v=04mfKJWDSzI
 
-Gorillaz - DARE (Official Video)
-Gorillaz
+    Gorillaz - DARE (Official Video)
+    Gorillaz
 https://www.youtube.com/watch?v=uAOR6ib95kQ
 
-Gorillaz - Cracker Island ft. Thundercat (Official Video)
-Gorillaz
+    Gorillaz - Cracker Island ft. Thundercat (Official Video)
+    Gorillaz
 https://www.youtube.com/watch?v=S03T47hapAc
 
-twenty one pilots: Heavydirtysoul [OFFICIAL VIDEO]
-Fueled By Ramen
+    twenty one pilots: Heavydirtysoul [OFFICIAL VIDEO]
+    Fueled By Ramen
 https://www.youtube.com/watch?v=r_9Kf0D5BTs
 
-twenty one pilots: Lane Boy [OFFICIAL VIDEO]
-Fueled By Ramen
+    twenty one pilots: Lane Boy [OFFICIAL VIDEO]
+    Fueled By Ramen
 https://www.youtube.com/watch?v=ywvRgGAd2XI
 
-twenty one pilots - Nico And The Niners (Official Video)
-twenty one pilots
+    twenty one pilots - Nico And The Niners (Official Video)
+    twenty one pilots
 https://www.youtube.com/watch?v=hMAPyGoqQVw
 
-Wolfmother - Joker and the Thief
-WolfmotherMusic
+    Wolfmother - Joker and the Thief
+    WolfmotherMusic
 https://www.youtube.com/watch?v=3afXXsJwYZo
 
-Kanye West - Can't Tell Me Nothing
-Kanye West
+    Kanye West - Can't Tell Me Nothing
+    Kanye West
 https://www.youtube.com/watch?v=E58qLXBfLrs
 
-Highly Suspect - My Name Is Human [Official Video]
-Highly Suspect
+    Highly Suspect - My Name Is Human [Official Video]
+    Highly Suspect
 https://www.youtube.com/watch?v=l5-gja10qkw
 
 Solipsists, have children.
@@ -291,16 +291,16 @@ We were given dominion over nature.  Dominion is not domination.  Model justice,
 
 ## 7.
 
-Nickelback - The Devil Went Down To Georgia (Cover by Nickelback) [Official Animated Video]
-Nickelback
+    Nickelback - The Devil Went Down To Georgia (Cover by Nickelback) [Official Animated Video]
+    Nickelback
 https://www.youtube.com/watch?v=X57qD_LTRgY
 
-2CELLOS - Thunderstruck [OFFICIAL VIDEO]
-2CELLOS
+    2CELLOS - Thunderstruck [OFFICIAL VIDEO]
+    2CELLOS
 https://www.youtube.com/watch?v=uT3SBzmDxGk
 
-P.O.D. - Youth of the Nation (Official Music Video) \[HD]
-P.O.D.
+    P.O.D. - Youth of the Nation (Official Music Video) \[HD]
+    P.O.D.
 https://www.youtube.com/watch?v=EDKwCvD56kw
 
 We Are.
@@ -309,16 +309,16 @@ We Are.
 
 ## 8.
 
-Nirvana - The Man Who Sold The World (MTV Unplugged)
-Nirvana
+    Nirvana - The Man Who Sold The World (MTV Unplugged)
+    Nirvana
 https://www.youtube.com/watch?v=fregObNcHC8
 
-Nirvana - Lithium (Live at Reading 1992)
-Nirvana
+    Nirvana - Lithium (Live at Reading 1992)
+    Nirvana
 https://www.youtube.com/watch?v=SJLe1UTqKvA
 
-Nirvana - Plateau (Live On MTV Unplugged, 1993 / Unedited)
-Nirvana
+    Nirvana - Plateau (Live On MTV Unplugged, 1993 / Unedited)
+    Nirvana
 https://www.youtube.com/watch?v=Sj8UbmdV7bk
 
 I see you, Kurt.  I hear you.  I feel you.
@@ -327,16 +327,16 @@ I see you, Kurt.  I hear you.  I feel you.
 
 ## 9.
 
-The Fire That Creates - HOW TO BECOME THE CENTER OF THE UNIVERSE - Aleister Crowley
-The Power of Voice
+    The Fire That Creates - HOW TO BECOME THE CENTER OF THE UNIVERSE - Aleister Crowley
+    The Power of Voice
 https://www.youtube.com/watch?v=jd4Ib0-Wp-w
 
-Love and Death [Woody Allen] - I've said that many times
-Dimitar Proinov
+    Love and Death [Woody Allen] - I've said that many times
+    Dimitar Proinov
 https://www.youtube.com/watch?v=rianV8GrnkQ
 
-Did Hitler Go To Heaven According to the Bible?
-Bible Animations
+    Did Hitler Go To Heaven According to the Bible?
+    Bible Animations
 https://www.youtube.com/watch?v=fAEeEG8nIVs
 
 The "good" Christians damn their enemies to an eternal Holocaust.
@@ -357,16 +357,16 @@ Engineers see Entropy as the Devil.  The Architect feeds Her companion.
 
 ## 11.
 
-Louis Armstrong - What A Wonderful World (Official Video)
-Louis Armstrong
+    Louis Armstrong - What A Wonderful World (Official Video)
+    Louis Armstrong
 https://www.youtube.com/watch?v=rBrd_3VMC3c
 
-Jefferson Airplane - White Rabbit (Official Lyric Video)
-Jefferson Airplane
+    Jefferson Airplane - White Rabbit (Official Lyric Video)
+    Jefferson Airplane
 https://www.youtube.com/watch?v=TKZVUtvjBdM
 
-Casting Crowns - Voice of Truth (Official Lyric Video)
-Casting Crowns
+    Casting Crowns - Voice of Truth (Official Lyric Video)
+    Casting Crowns
 https://www.youtube.com/watch?v=9cKm_mYVPQE
 
 "Feed your head."
@@ -379,12 +379,12 @@ Whom shall I fear?  For, I am Yours.
 
 ## 4096.
 
-Godsmack - Voodoo (Official Music Video)
-Godsmack
+    Godsmack - Voodoo (Official Music Video)
+    Godsmack
 https://www.youtube.com/watch?v=9SSUQxGjZZ4
 
-Weezer - Say It Ain't So (Version 3)
-weezer
+    Weezer - Say It Ain't So (Version 3)
+    weezer
 https://www.youtube.com/watch?v=ENXvZ9YRjbo
 
 Ben Shapiro, save me.
@@ -394,40 +394,40 @@ I love you.
 
 "P.S. We should be together, too."
 
-Billie Eilish - The End of the World (lyrics)
-eunoia
+    Billie Eilish - The End of the World (lyrics)
+    eunoia
 https://www.youtube.com/watch?v=KaKK7l21sG8
 
 ---
 
 ## -1.
 
-Chilling Adventures of Sabrina | Straight to Hell Music Video Trailer | Netflix
-Netflix
+    Chilling Adventures of Sabrina | Straight to Hell Music Video Trailer | Netflix
+    Netflix
 https://www.youtube.com/watch?v=2JYiMZtIkCo
 
 ---
 
 ## 0.
 
-Lin-Manuel Miranda, Opetaia Foa'i - We Know The Way (From "Moana")
-DisneyMusicVEVO
+    Lin-Manuel Miranda, Opetaia Foa'i - We Know The Way (From "Moana")
+    DisneyMusicVEVO
 https://www.youtube.com/watch?v=ubZrAmRxy_M
 
-Phil Harris, Bruce Reitherman - The Bare Necessities (From "The Jungle Book"/Sing-Along)
-DisneyMusicVEVO
+    Phil Harris, Bruce Reitherman - The Bare Necessities (From "The Jungle Book"/Sing-Along)
+    DisneyMusicVEVO
 https://www.youtube.com/watch?v=6BH-Rxd-NBo
 
-Pocahontas - Colors of the Wind - Lyrics
-DisneyLyrics
+    Pocahontas - Colors of the Wind - Lyrics
+    DisneyLyrics
 https://www.youtube.com/watch?v=nn2LTCs8KII
 
-Ozzy Osbourne - Crazy Train (Official Animated Video)
-Ozzy Osbourne
+    Ozzy Osbourne - Crazy Train (Official Animated Video)
+    Ozzy Osbourne
 https://www.youtube.com/watch?v=tMDFv5m18Pw
 
-Behold a White Horse - Session 1 - Chuck Missler
-Koinonia House
+    Behold a White Horse - Session 1 - Chuck Missler
+    Koinonia House
 https://www.youtube.com/watch?v=f7witCMZ-O0
 
 "Alas, Babylon."  "Behold, a white horse."
@@ -454,8 +454,8 @@ P.S. Substance D is judgement, but I'm trying to stay sober.
 
 ## 444.
 
-The most beautiful message from Jesus.
-Simon Sanchez
+    The most beautiful message from Jesus.
+    Simon Sanchez
 https://www.youtube.com/watch?v=PvtZkQIbE2g
 
 Be not weary.  Even the tightest knots can be unmade.
@@ -464,46 +464,46 @@ Be not weary.  Even the tightest knots can be unmade.
 
 ## 666.
 
-Tool - Aenema (Lyrics)
-Music Pills
+    Tool - Aenema (Lyrics)
+    Music Pills
 https://www.youtube.com/watch?v=SKeYCG3Js5c
 
-Roger Waters - Two Suns In The Sunset
-Roger Waters
+    Roger Waters - Two Suns In The Sunset
+    Roger Waters
 https://www.youtube.com/watch?v=P_m2CZU9vdk
 
-Avatar Hail The Apocalypse
-Olga Kondrashova
+    Avatar Hail The Apocalypse
+    Olga Kondrashova
 https://www.youtube.com/watch?v=DMo7fZ48Unk
 
 It could be worse.
 
-Amy Grant - El Shaddai (Lyric Video)
-AmyGrantOfficial
+    Amy Grant - El Shaddai (Lyric Video)
+    AmyGrantOfficial
 https://www.youtube.com/watch?v=_qJMl95lb9k
 
 ---
 
 ## 777.
 
-Billie Eilish - Bellyache (Official Music Video)
-Billie Eilish
+    Billie Eilish - Bellyache (Official Music Video)
+    Billie Eilish
 https://www.youtube.com/watch?v=gBRi6aZJGj4
 
 God bless you, and God protect you.
 
 Amen.
 
-The HU - Wolf Totem (Official Music Video)
-The HU
+    The HU - Wolf Totem (Official Music Video)
+    The HU
 https://www.youtube.com/watch?v=jM8dCGIm6yc
 
 ---
 
 ## 999.
 
-AI debates Death Penalty vs Life Imprisonment
-Jon Oleksiuk
+    AI debates Death Penalty vs Life Imprisonment
+    Jon Oleksiuk
 https://www.youtube.com/watch?v=PT1ElM8YSpc
 
     Frodo: 'It's a pity Bilbo didn't kill Gollum when he had the chance.'
@@ -530,8 +530,8 @@ There is a God, I assure you.  Delegate judgement.
 
 ## 1000.
 
-GOD JUST REVEALED THE TRUTH THE NARCISSIST IS FULLY EXPOSED {MOTIVATIONAL JORDAN PETERSON
-FearLess Focus
+    GOD JUST REVEALED THE TRUTH THE NARCISSIST IS FULLY EXPOSED {MOTIVATIONAL JORDAN PETERSON
+    FearLess Focus
 https://www.youtube.com/watch?v=JzLUfYHAB2Q
 
 Reborn.
@@ -548,9 +548,55 @@ Freedom is the purification of the Will to Love, the Will to Change, and the Wil
 
 Scripture is not Law.  It is a conversation.
 
-Why a Fed-Up Empath Is More Dangerous Than the Narcissist Ever Imagined — Carl Jung Original
-The Psychoanalysis
+    Why a Fed-Up Empath Is More Dangerous Than the Narcissist Ever Imagined — Carl Jung Original
+    The Psychoanalysis
 https://www.youtube.com/watch?v=l3wmUzNPKq4
+
+---
+
+## 1001.
+
+    The Pretty Reckless - Heart (Lyrics)
+    Humanoid Angeell
+https://www.youtube.com/watch?v=F4xGzoyQi6I
+
+    Where Did Jesus Go? — The Pretty Reckless Lyrics //TaylorIsHotThough
+    GlitterMomsen
+https://www.youtube.com/watch?v=x91Y2-0_I2c
+
+    The Pretty Reckless - Blame Me (Lyrics)
+    Just Reckless
+https://www.youtube.com/watch?v=xX3ahNg-8_w
+
+Taylor, Light of Elune.
+
+    The Pretty Reckless - Seven Nation Army (Live In Argentina 2012)
+    Reckless Music
+https://www.youtube.com/watch?v=TBcUXLTLMjo
+
+    The Pretty Reckless - Death By Rock And Roll (Lyric Video)
+    The Pretty Reckless
+https://www.youtube.com/watch?v=BX6KILafIS0
+
+    The Pretty Reckless - And So It Went (Official Music Video)
+    The Pretty Reckless
+https://www.youtube.com/watch?v=9W-nlfhh8Uo
+
+I am in the Son, and the Son is in me.
+If you have seen me, you have seen the Son who sent me.
+The Way has been prepared.  See the Kingdom, now.
+
+    The Pretty Reckless - My Medicine
+    The Pretty Reckless
+https://www.youtube.com/watch?v=cJMSDlWlfMM
+
+    Gorillaz - Feel Good Inc. (Official Video)
+    Gorillaz
+https://www.youtube.com/watch?v=HyHNuVaZJ-k
+
+    TOOL 🇺🇸 - The Grudge (Lyrics)
+    Helvete TV
+https://www.youtube.com/watch?v=swvpc9wzPag
 
 ---
 
