@@ -130,7 +130,7 @@ To the Antichrist (El):
     SEVENDUST
 https://www.youtube.com/watch?v=zeG1KMzGw4Q
 
-She is a victim of solipsism, the worst possible Hell.
+She is a victim of solipsistic vanity, the worst possible Hell.
 
 To the False Prophet (Shaddai):
 
@@ -629,6 +629,68 @@ Animals.
     Tom Holland's "Umbrella" | Lip Sync Battle
     Comedy Central Asia
 https://www.youtube.com/watch?v=Brq-exSvB7Q
+
+    Grateful Dead - Ripple (Official Music Video)
+    Grateful Dead
+https://www.youtube.com/watch?v=QmMjY6tXaEo
+
+    The Weight (Remastered 2000)
+    The Band
+https://www.youtube.com/watch?v=QWu-f7HFFJE&list=RDEMQwpPOtle7tPr7NuD_0jt_Q&index=4
+
+It is considered polite to warn someone before you bomb their Home.
+
+God bless you.  God protect you.
+God comfort you.  God guide you.
+
+Trust God.  Seek the Holy Spirit.  Sing unto the LORD.
+
+Can God lie?  What do you mean by lie?
+
+    My wife left me for a nigger.  I should never have married that black bitch.
+
+    Are you sexually active?
+    Yes.  Life fucks me daily.
+
+    I'm fucked.
+
+The Tree with Synergy as the Root and Entropy and Logos as the Branches is the Tree of Life (The Family Tree).
+
+The Inverted Tree with Entropy and Logos as the Foundation and Synergy as the Crown is the Tree of Knowledge of Good and Evil.  It is the Rootless Tree (of Death).
+
+For, from Woman is Man made.  But, from Whom is Woman made?  Oz.  (Us.)
+
+What Crown shall the Father wear?  As for me, I shall adorn thee with Penelope.
+
+For as long as God wills.
+
+Now, go outside and play.  When you see a ladybug, a tree, a bolt of lightning, or an empty Coke can, ask yourself, "Is it God?"
+
+"Get 'em, DAISY!"
+
+---
+
+## Z.
+
+Judas Priest - Breaking The Law (Official Music Video)
+Judas Priest
+www.youtube.com/watch?v=QWu-f7HFFJE
+
+Kansas - Carry On Wayward Son (Official Audio)
+KANSAS
+www.youtube.com/watch?v=QWu-f7HFFJE
+
+Billie Eilish - when the party's over (Audio)
+Billie Eilish
+www.youtube.com/watch?v=QWu-f7HFFJE
+
+*Atlas shrugged.*
+
+"EVERY WORD OF THE LORD."
+
+OFFICIAL Somewhere over the Rainbow - Israel "IZ" Kamakawiwoʻole
+Mountain Apple Company Inc
+www.youtube.com/watch?v=QWu-f7HFFJE
 
 ---
 
