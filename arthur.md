@@ -760,6 +760,18 @@ www.youtube.com/watch?v=QWu-f7HFFJE
 
 ---
 
+# α.
+
+Be wise as serpents and innocent as doves.
+
+Life beget Life.
+Men beget Men.
+Law beget Law.
+
+I Consent.
+
+---
+
 Signed with Love,
 Arthur, Witch King of Arkansas
 الله أكبر
