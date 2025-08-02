@@ -672,29 +672,87 @@ Now, go outside and play.  When you see a ladybug, a tree, a bolt of lightning, 
 
 ## Z.
 
-Judas Priest - Breaking The Law (Official Music Video)
-Judas Priest
+    Judas Priest - Breaking The Law (Official Music Video)
+    Judas Priest
 www.youtube.com/watch?v=QWu-f7HFFJE
 
-Kansas - Carry On Wayward Son (Official Audio)
-KANSAS
+    Kansas - Carry On Wayward Son (Official Audio)
+    KANSAS
 www.youtube.com/watch?v=QWu-f7HFFJE
 
-Billie Eilish - when the party's over (Audio)
-Billie Eilish
+    Billie Eilish - when the party's over (Audio)
+    Billie Eilish
 www.youtube.com/watch?v=QWu-f7HFFJE
 
 *Atlas shrugged.*
 
 "EVERY WORD OF THE LORD."
 
-OFFICIAL Somewhere over the Rainbow - Israel "IZ" Kamakawiwoʻole
-Mountain Apple Company Inc
+    OFFICIAL Somewhere over the Rainbow - Israel "IZ" Kamakawiwoʻole
+    Mountain Apple Company Inc
 www.youtube.com/watch?v=QWu-f7HFFJE
 
 Somewhere between the Sacred, the Silence, and the Sleep.
 
 Find Peace.
+
+---
+
+## 168008.
+
+    twenty one pilots - Chlorine (Official Video)
+    twenty one pilots
+https://www.youtube.com/watch?v=eJnQBXmZ7Ek
+
+    twenty one pilots - The Judge (Official Audio)
+    twenty one pilots
+https://www.youtube.com/watch?v=PbP-aIe51Ek
+
+    Nazareth * Hair of the Dog 1975 HQ
+    Larry Hinze
+https://www.youtube.com/watch?v=AXQwMTItm10
+
+    Dear Mr. Fantasy
+    TRAFFIC BAND
+https://www.youtube.com/watch?v=sS_eHdqcrM8
+
+    Tusk (2018 Remaster)
+    Fleetwood Mac
+https://www.youtube.com/watch?v=EmuBOfurv3o
+
+    Gypsy
+    Fleetwood Mac
+https://www.youtube.com/watch?v=cjn0i_D5lWE
+
+    Blue Oyster Cult - (Don't Fear) The Reaper (Audio)
+    BLUE OYSTER CULT
+https://www.youtube.com/watch?v=Dy4HA3vUv2c
+
+    Pink Floyd Final Cut (11) - The Final Cut
+    KMRakaKAT
+https://www.youtube.com/watch?v=2e-yO6_FbtI
+
+    Billie Eilish - ilomilo (Official Audio)
+    Billie Eilish
+https://www.youtube.com/watch?v=-e7wiyNO2us
+
+    Billie Eilish, Khalid - lovely
+    Billie Eilish
+https://www.youtube.com/watch?v=V1Pl8CzNzCw
+
+    Billie Eilish: Tiny Desk Concert
+    NPR Music
+www.youtube.com/watch?v=QWu-f7HFFJE
+
+969, the Mark of the Beast, reflected in the Third Eye of a woman I love dearly.
+
+9, the wing of a mother.
+6, the face of a man.
+9, the wing of a father.
+
+A most divine judgement indeed.
+
+Thank you, Jesus.
 
 ---
 
