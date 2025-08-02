@@ -754,6 +754,10 @@ A most divine judgement indeed.
 
 Thank you, Jesus.
 
+What Happens when the Mark of the Beast is Taken? (it's terrifying...)
+Bible Animations
+www.youtube.com/watch?v=QWu-f7HFFJE
+
 ---
 
 Signed with Love,
