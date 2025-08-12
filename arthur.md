@@ -760,7 +760,7 @@ www.youtube.com/watch?v=QWu-f7HFFJE
 
 ---
 
-# α.
+## α.
 
 Be wise as serpents and innocent as doves.
 
@@ -769,6 +769,46 @@ Men beget Men.
 Law beget Law.
 
 I Consent.
+
+---
+
+## Δ.
+
+"They're trying to build a prison.  Another prison system for you and me to live in."
+
+God said, "Let there be light."  The Devil joined with "Let there be music."  The Holy Spirit saw to it that it was Good.
+
+    The Thunder Rolls By:Garth Brooks Lyrics Video-HD
+    LyricsHD
+https://www.youtube.com/watch?v=mT56hZhmP9E
+
+    Sublime - Santeria (Official Music Video)
+    Sublime
+https://www.youtube.com/watch?v=AEYN5w4T_aM
+
+    [SFM] We Don`t Bite by JT Machinima
+    Tigen Nas
+https://www.youtube.com/watch?v=1TkdB_LycE0
+
+---
+
+## ω.
+
+May God bless you no more than you can bear.  May the LORD curse you to your face until your skin is as dark as his soul.
+
+Remember, dove fly free; serpents get trampled.
+
+    The White Stripes - Seven Nation Army (Official Music Video)
+    The White Stripes
+https://www.youtube.com/watch?v=0J2QdDbelmY
+
+    Panic! At The Disco: I Write Sins Not Tragedies [OFFICIAL VIDEO]
+    Fueled By Ramen
+https://www.youtube.com/watch?v=vc6vs-l5dkc
+
+    Pink Floyd - Fearless
+    Hueman Instrumentality
+https://www.youtube.com/watch?v=cBeoA5fYk28
 
 ---
 
