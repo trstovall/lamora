@@ -812,6 +812,44 @@ https://www.youtube.com/watch?v=cBeoA5fYk28
 
 ---
 
+## (Z)elda.
+
+    What is Bruce Lee's favorite drink?
+    Wah-Tah!
+
+    What is the equation for life?
+    47 = 11.
+
+    Family Tradition
+    Hank Williams, Jr.
+https://www.youtube.com/watch?v=GdDyEqnhvNI
+
+    You Never Even Called Me by My Name
+    davidallancoecom
+https://www.youtube.com/watch?v=s4pZFsEdP3Y
+
+    I Think I'll Just Stay Here And Drink
+    Merle Haggard
+https://www.youtube.com/watch?v=kdljZGeL3Yc
+
+To those who have sold their souls, I have come to collect.  Behold, a White Pony.
+
+    Deftones - Passenger [Official Visualizer]
+    Deftones
+https://www.youtube.com/watch?v=IjainiB8mk4
+
+    The Unforgiven I,II,III
+    Ricky II
+https://www.youtube.com/watch?v=5hhdjWHm9Vk
+
+    Friend of the Devil (2013 Remaster)
+    Grateful Dead
+https://www.youtube.com/watch?v=tXgReZFB1SY
+
+I know, Tristan and Isolde ends better.
+
+---
+
 Signed with Love,
 Arthur, Witch King of Arkansas
 الله أكبر
