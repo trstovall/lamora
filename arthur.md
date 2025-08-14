@@ -892,6 +892,16 @@ I get that prison should be a deterrent.  But that is not accomplished by making
     The Pretty Reckless
 https://www.youtube.com/watch?v=hRAdR9ryTbk
 
+    The Pretty Reckless FULL acoustic session in Paris
+    Marianne “The Zombie” Audouin
+https://www.youtube.com/watch?v=76lIGyw7zL8
+
+    Eskimo
+    Damien Rice
+https://www.youtube.com/watch?v=zsSCdgxu9HM
+
+When the Waters rise, Wizards hide in the hills.
+
 ---
 
 Signed with Love,
