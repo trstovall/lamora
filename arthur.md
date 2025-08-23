@@ -964,6 +964,8 @@ Luke 6:49
 
 "God is Good.  Good is God."
 
+"Money is Death.  Death is Money."
+
 ---
 
 Signed with Love,
