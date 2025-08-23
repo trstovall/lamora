@@ -904,6 +904,26 @@ When the Waters rise, Wizards hide in the hills.
 
 ---
 
+## 0.o
+
+    A Perfect Circle - Passive
+    LegenddKillerr
+https://www.youtube.com/watch?v=oMe4kVNKvNk
+
+    Judith
+    A Perfect Circle
+https://www.youtube.com/watch?v=kb3Lt18iQUw
+
+    Breña
+    A Perfect Circle
+https://www.youtube.com/watch?v=3-xBqBGl0Pw
+
+    “The Pretty Reckless - For I Am Death // Life Evermore Pt.2 (Official Music Video)
+    The Pretty Reckless
+https://www.youtube.com/watch?v=GWTNGMAH500
+
+---
+
 Signed with Love,
 Arthur, Witch King of Arkansas
 الله أكبر
