@@ -974,7 +974,7 @@ Ryan = Lost Keys.
 
 Sara = Rosetta Stoned.
 
-God = TRUTH & LOVE.
+God = TRUTH & LOVE & PEACE.
 
 God wants a Lord and Lady of the Rings.
 
