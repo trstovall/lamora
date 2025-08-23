@@ -966,6 +966,16 @@ Luke 6:49
 
 "Money is Death.  Death is Money."
 
+"RIP Ozzy."
+
+"Be still and KNOW I Am God."
+
+Ryan = Lost Keys.
+
+Sara = Rosetta Stoned.
+
+God = THE LORD OF THE RINGS.
+
 ---
 
 Signed with Love,
