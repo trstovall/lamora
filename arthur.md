@@ -952,6 +952,8 @@ El is the Collective Feminine.  Shaddai is the Collective Masculine.
 
 "By the Name of El-Shaddai anything is possible."
 
+"You are a Mighty Lioness.  You can do this."
+
 ---
 
 Signed with Love,
