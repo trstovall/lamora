@@ -962,6 +962,8 @@ Luke 6:49
 
 "All is Whole again."
 
+"God is Good."
+
 ---
 
 Signed with Love,
