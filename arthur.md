@@ -976,6 +976,8 @@ Sara = Rosetta Stoned.
 
 God = TRUTH.
 
+God wants a Lord and Lady of the Rings.
+
 ---
 
 Signed with Love,
