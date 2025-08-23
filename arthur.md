@@ -974,7 +974,7 @@ Ryan = Lost Keys.
 
 Sara = Rosetta Stoned.
 
-God = THE LORD AND LADY AND CHILDREN OF THE RINGS.
+God = THE SON OF MAN.
 
 ---
 
