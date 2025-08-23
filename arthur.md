@@ -942,7 +942,7 @@ https://www.youtube.com/watch?v=wPQEeBAXou0
     Stunt
 https://www.youtube.com/watch?v=62-wpWAcZYM
 
-"Be as wise as serpents, and innocent as doves."
+"Be as wise as serpents, and as innocent as doves."
 
 "By the Spine of the Father, the Venom of the Mother, and the Blood of the Son, I turn you into a serpent."
 
