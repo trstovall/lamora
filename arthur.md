@@ -918,9 +918,39 @@ https://www.youtube.com/watch?v=kb3Lt18iQUw
     A Perfect Circle
 https://www.youtube.com/watch?v=3-xBqBGl0Pw
 
+---
+
+## xxx.
+
     “The Pretty Reckless - For I Am Death // Life Evermore Pt.2 (Official Music Video)
     The Pretty Reckless
 https://www.youtube.com/watch?v=GWTNGMAH500
+
+---
+
+## yyy.
+
+    Imagine Dragons - Warriors (Official Lyric Video)
+    ImagineDragons
+https://www.youtube.com/watch?v=wPQEeBAXou0
+
+---
+
+## zzz.
+
+    IVERN SUPPORT - DAISY DIFF
+    Stunt
+https://www.youtube.com/watch?v=62-wpWAcZYM
+
+"Be as wise as serpents, and innocent as doves."
+
+"By the Spine of the Father, the Venom of the Mother, and the Blood of the Son, I turn you into a serpent."
+
+"By the Spine of the Father, the Wings of the Mother, and the Blood of the Son, I turn you into a dove."
+
+El is the Collective Feminine.  Shaddai is the Collective Masculine.
+
+"By the Name of El-Shaddai anything is possible."
 
 ---
 
