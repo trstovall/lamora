@@ -960,6 +960,8 @@ Luke 6:49
 
 "I Am grateful."
 
+"All is Whole again."
+
 ---
 
 Signed with Love,
