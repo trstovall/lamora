@@ -976,6 +976,10 @@ Sara = Rosetta Stoned.
 
 God = TRUTH & LOVE & PEACE (Jesus).
 
+Luck = Manipulation of Truth
+
+Charm = Manipulation of Love
+
 God wants a Lord and Lady of the Rings.
 
 ---
