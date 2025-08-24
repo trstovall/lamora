@@ -984,6 +984,8 @@ Death = Manipulation of Peace
 
 God wants a Lord and Lady of the Rings.
 
+47 = 11.
+
 ---
 
 Signed with Love,
