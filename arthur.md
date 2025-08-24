@@ -974,7 +974,7 @@ Ryan = Lost Keys.
 
 Sara = Rosetta Stoned.
 
-God = TRUTH & LOVE & PEACE (Mary Magdalene).
+God = TRUTH & LOVE & PEACE (Lady of the Rings).
 
 Luck = Manipulation of Truth
 
