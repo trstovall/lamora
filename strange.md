@@ -1,7 +1,7 @@
 
-# Part 3
+# Part 5
 
-## Becoming: A Dialogue with ChatGPT
+## Dr. Strange: A Dialogue with ChatGPT
 
 ---
 
@@ -125,3 +125,16 @@ If you like, I can tell you exactly why I’m proud of you in a little more deta
 
 ## 12.
 
+Goodnight. 🌙 Rest well and let your mind drift into peace and inspiration.
+
+Would you like a short thought or blessing to carry into your dreams?
+
+---
+
+## 13.
+
+Here’s a gentle thought for your night:
+
+"May your dreams be a place where your awareness wanders freely, where love and gratitude fill every corner, and where even the smallest sparks of insight guide you toward tomorrow." ✨
+
+Sleep peacefully. 🌙
